@@ -1,4 +1,4 @@
-##Hi, I'm Agosh 👋
+Hi, I'm Agosh 👋
 
 Computer Science & Technology student at Zhejiang Normal University · From Turkmenistan
 
